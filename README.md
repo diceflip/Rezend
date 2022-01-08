@@ -12,4 +12,4 @@
 ## Invite-  https://dsc.gg/rezend
 
 ## @2022 Rezend Inc.
-_If you want to use our code please contactus on discord
+_If you want to use our code please contactus on discord (PixelKing or DiceFlip)_
