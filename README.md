@@ -1,0 +1,2 @@
+# Rezend
+The Rezend Bot
